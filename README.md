@@ -13,7 +13,7 @@ PINOY EXEDOS
 LULZEX CYBER GROUP
 ![7CBEBA4D-DD94-4F12-955C-EF54327C6CC8](https://github.com/FlameExlsc/nudoxx/assets/160382195/e87fb781-b556-49b7-aa3f-567e0b4dc308)
 
-We will not stop until we achiev freedom.
+We will not stop until we achieved freedom.
 
 Follw Other Organization On FB:
 Pinoy Cyber Alliance
