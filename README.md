@@ -21,7 +21,16 @@ Pinoy Exedos
 Lulzex Cyber group 
 
 
+
 ~ FL4M3
+
+
+
+
+
+https://github.com/FlameExlsc/nudoxx/assets/160382195/b5783c13-e8c3-4e7b-b9c6-8186c46011a5
+
+
 
 
 
